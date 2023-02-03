@@ -1,0 +1,1 @@
+# SQL ödevlerimi buradan paylaşacağım
